@@ -8,4 +8,5 @@
 - 📫 How to reach me: https://www.linkedin.com/in/mohammadreza-khorrami-238302215/
 - 😄 Pronouns: seriously, funny, a little quiet ❤
 - ⚡ Fun fact: in fact just im hunger 😁
+- thanks reguard for reading 
 

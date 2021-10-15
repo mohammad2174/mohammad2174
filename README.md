@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-- 🔭 I’m currently working on on gss company as a devops engineer 😍
+- 🔭 I’m currently working on gss company as a devops engineer 😍
 - 🌱 I’m currently learning become a full stack developer 🤩
 - 👯 I’m looking to collaborate on senior full stack developers
 - 🤔 I’m looking for help with I’m looking for help with
